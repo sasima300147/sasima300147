@@ -1,5 +1,8 @@
 ### Hi there 👋
-
+-I’m @sasima300147
+-I’m interested in Music, Books, and draw a picture.
+-I’m studying at Panyapiwat Institute of Management
+-I'm looking forward to seeing you.💞️ 👋
 <!--
 **sasima300147/sasima300147** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
